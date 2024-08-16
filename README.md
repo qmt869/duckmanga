@@ -1,2 +1,10 @@
-# duckmanga
-webtruyentranh
+# Nhớ ủng hộ mình 1 star nhé!
+![9](https://github.com/phohoccode/phomanga/assets/144604404/fcae7c97-f088-40e3-8c08-f554c5466c90)
+![8](https://github.com/phohoccode/phomanga/assets/144604404/bb1f3598-aad4-4b2b-901c-068b9a39eb67)
+![7](https://github.com/phohoccode/phomanga/assets/144604404/0d84d71d-741f-4498-bb6a-947d2182dbca)
+![6](https://github.com/phohoccode/phomanga/assets/144604404/d373b1de-6071-481f-b2c1-f42b7650f7aa)
+![5](https://github.com/phohoccode/phomanga/assets/144604404/72c7580b-c5bf-4a31-a49a-93a03753e6e1)
+![4](https://github.com/phohoccode/phomanga/assets/144604404/7dac10b7-6da3-41be-8b46-f157e57365e8)
+![3](https://github.com/phohoccode/phomanga/assets/144604404/f92a2fb7-9a74-4a61-a094-f73d294d067c)
+![2](https://github.com/phohoccode/phomanga/assets/144604404/fc6df67e-3a30-4088-8aec-b4447e87b4fd)
+![1](https://github.com/phohoccode/phomanga/assets/144604404/fd8caf24-e374-4ba6-b393-42c77598a4a8)
